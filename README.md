@@ -4,7 +4,7 @@
 
 🔹 Soy Rebecca Rodriguez, tengo 21 años, soy estudiante de 2do año en Sistemas, solo me queda la maravillosa Algebra de primero.  
 🔹 No tengo ni idea que hacer con mi vida todavía, voy de chill a ver que va saliendo.  
-🔹 Soy de Campana de toda la vida, ando sin laburo pero en pandemia tuve un emprendimiento personal que tuve que abandonar por aumentos en los materiales.    
+🔹 Soy de Campana de toda la vida, ando sin laburo pero en pandemia tuve un emprendimiento artesanal que tuve que abandonar por aumentos en los materiales.    
 🔹 Soy de hacer las cosas bien o no hacerlas, soy medio vivida también, me gusta ver que tanto puedo mejorar algo a medida que lo hago.  
 
 ## Mis Intereses
