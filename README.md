@@ -1,4 +1,5 @@
 # Hola!!
+![Main](https://tenor.com/view/cat-gif-26024704)
 ## Quien soy?? :eyes:
 
 
@@ -21,6 +22,6 @@
 
 🟡 Espero aprender cosas copadas  
 🟡 Poder conseguir un grupo responsable para poder trabajar tranquila   
-🟡 Poder terminar de entender algunas de programación, solo hice cosas por necesidad y no por interes o entendiendo lo que hacia 😳     
+🟡 Poder terminar de entender algunas cosas de programación, solo hice cosas por necesidad y no por interes o entendiendo lo que hacia 😳     
 
 ![Main](https://media1.tenor.com/m/VOdWjm2zbEAAAAAC/gandalf-sax-guy.gif)
