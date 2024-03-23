@@ -12,6 +12,7 @@
 
 🔸 ***Leer***: Me fascina leer, fantasia sobre todo, mi mayor orgullo son mis colecciones: toda la obra de Julio Verne y la saga de Tolkien.  
 🔸 ***Videojuegos***: Tengo un grupo de amigos de varios paises con los que juego D&D y varios juegos multijugador. Soy adicta al buscaminas y mi novio me destroza en el ajedrez.  
+                      Re banco la wii y viciaba la ps2 hasta que se me rompió.  
 🔸 ***Pelis***: Me gustan mucho las peliculas y tengo una lista muy larga de favoritas.  
 🔸 ***Deportes..?***: Este año arranqué natación pero a lo largo de mi vida hice varias cosas: handball, ballet, boxeo, crossfit, patín.  
 🔸 ***Música***: Me encanta la música, de todo tipo, aunque estoy bastante desconectada de lo actual nacional. Apoyo la movida local todos los findes que pueda.   
