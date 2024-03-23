@@ -24,4 +24,7 @@
 🟡 Poder conseguir un grupo responsable para poder trabajar tranquila   
 🟡 Poder terminar de entender algunas cosas de programación, solo hice cosas por necesidad y no por interes o entendiendo lo que hacia 😳     
 
-![Main](https://media1.tenor.com/m/VOdWjm2zbEAAAAAC/gandalf-sax-guy.gif)
+![Main](https://media1.tenor.com/m/VOdWjm2zbEAAAAAC/gandalf-sax-guy.gif)  
+
+
+AGUANTE SAPO REY 
