@@ -1,7 +1,7 @@
 # Hola!!
-<img src="https://media1.tenor.com/m/GOj9ZF_-ZOcAAAAC/cat.gif" width=250 height=250>  
-## Quien soy?? :eyes:
+<img src="https://media1.tenor.com/m/GOj9ZF_-ZOcAAAAC/cat.gif" width=250 height=250>   
 
+## Quien soy?? :eyes:
 
 🔹 Soy Rebecca Rodriguez, tengo 21 años, soy estudiante de 2do año en Sistemas, solo me queda la maravillosa Algebra de primero.  
 🔹 No tengo ni idea que hacer con mi vida todavía, voy de chill a ver que va saliendo.  
