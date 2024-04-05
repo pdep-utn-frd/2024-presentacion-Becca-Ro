@@ -1,5 +1,5 @@
 # Hola!!
-![Main](https://media1.tenor.com/m/GOj9ZF_-ZOcAAAAC/cat.gif) =250x250
+<img src="https://media1.tenor.com/m/GOj9ZF_-ZOcAAAAC/cat.gif" width=50% height=50%
 ## Quien soy?? :eyes:
 
 
